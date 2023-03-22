@@ -12,4 +12,4 @@ Seventeen Seconds is an album that rewards repeated listens, with each play reve
 
 Overall, Seventeen Seconds is a seminal album that helped establish The Cure's reputation as one of the most innovative and influential bands of tthe post-punk era. It's a must-listen for anyone interested in the history of alternative music, and a testament to the power of music to create an emotional and immersive experience.
 
-![Cover](10534-the-cure-seventeen-seconds-LP-2-5a72ecc409b9c.jpg)
+![Cover](10534-the-cure-seventeen-seconds-LP-2-5a72ecc409b9c.png)
