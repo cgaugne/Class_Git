@@ -1,3 +1,5 @@
+![Cover](Cure.png)
+
 # **Seventeen Seconds** - The Cure
 
 Seventeen Seconds, the second studio album by English rock band The Cure, is a stunning piece of art that captures the essence of the band's early years. Released in 1980, the album marked a significant departure from the band's debut album, Three Imaginary Boys, with its more introspective and atmospheric sound.
