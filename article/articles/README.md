@@ -2,4 +2,4 @@
 
 This is an exercise for the 2023 Git Class.
 
-![Mind blowing](https://fr.m.wikipedia.org/wiki/Fichier:Octicons-mark-github.svg)
+!(https://www.referenseo.com/wp-content/uploads/2019/03/image-attractive.jpg)
